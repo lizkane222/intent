@@ -1,2 +1,2 @@
 # intent
-building intention in life
+building intention in life's routines
